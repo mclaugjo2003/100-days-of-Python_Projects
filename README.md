@@ -1,3 +1,4 @@
-# Welcome to My GitHub Page!
+# 🤘 Welcome to John's GitHub page! 🛹
 
-**** I'll be posting projects shortly. Under Construction ****
+**** 😄 I'll be posting projects shortly. Under Construction 😃 ****
+
