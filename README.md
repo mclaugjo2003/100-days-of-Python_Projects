@@ -1,4 +1,8 @@
 # 🤘 Welcome to John's GitHub page! 🛹
 
-**** 😄 I'll be posting projects shortly. Under Construction 😃 ****
+**** 🔥 - Working on Leap Year project - 🔥 
+
+**** 😄 - Day 3 BMI Calc 2.0 - Complete😃 ****
+
+
 
